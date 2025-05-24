@@ -44,7 +44,7 @@ Help an e-commerce business identify key levers for performance: best-selling pr
 
 **Vue Donnée** – Freelance Data Analyst  
 📍 Paris, France  
-🔗 [Portfolio](https://www.notion.so/...) | [LinkedIn](https://www.linkedin.com/in/...)
+🔗 [Portfolio](https://easy-sand-380.notion.site/Vue-Donn-e-Data-Analyst-Freelance-1f31fee1f685803aafdaf44f7b133caa) | [LinkedIn](https://www.linkedin.com/in/vue-donn%C3%A9e-7687a1367/)
 
 ---
 
